@@ -10,4 +10,4 @@ these results were amazing
 
 lots of amazing figs
 
-we live in cool hous. in cool places.
+authorship affiliations go here
